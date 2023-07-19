@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/19920513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/www.jpg"></a><br>
-<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/h3333">tinyurl.com/h3333</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?w%231" title="分享本平台"></img><br>
+<p><details><summary>本平台短网址:&nbsp;&nbsp;<a href="https://tinyurl.com/hhchh">tinyurl.com/hhchh</a>&nbsp;&nbsp;持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?j%231" title="分享本平台"></img><br>
 本平台二维码
 </details>
 
@@ -269,10 +269,10 @@
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 
 <h1><strong>其它的真相媒体</strong></h1>
-<details><summary><a target="_blank" href="http://111.240.223.136/Cy4GK?ljasb">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://111.240.223.136/GnoF?dksyw">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<details><summary><a target="_blank" href="http://111.240.223.136/Cy4GK?usujt">动态网</a>&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="http://111.240.223.136/GnoF?nlhos">明慧网</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?himzu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bmjmt">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -316,30 +316,30 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wwijv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ryims">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?geepk">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gmdmt">明慧特刊</a></p>
 </details>
 
 
 <img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"><br>
 <h1><p><strong>真相视频</strong></p></h1>
-<a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?pjmrq" target="_blank"><img src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/wf595.jpg"></a>
-<p><details><summary><a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?rdfun" target="_blank">短视频 : 伪火骗局--看中共如何造假</a> :arrow_double_down:</summary></p>
-<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?konrk" title="分享本平台"></img><br>
+<a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?ensiq" target="_blank"><img src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/wf595.jpg"></a>
+<p><details><summary><a href="https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?ygloy" target="_blank">短视频 : 伪火骗局--看中共如何造假</a> :arrow_double_down:</summary></p>
+<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://gitlab.com/qwertyui12/ww/-/raw/main/Falsefire.mp4?semzh" title="分享本平台"></img><br>
 伪火视频二维码
 </details>
-<a href="https://gitlab.com/Dillonghk/vdpzNgjXjVPm/raw/master/public/pzNgjXjVPm.webm?cadhu" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/pzNgjXjVPm.jpg" title="疫情险　顺天保命有真言　　　　　" alt="疫情险　顺天保命有真言　　　　　"></a>
-<a href="https://gitlab.com/Dillonmkc/vdgushi-h/raw/master/public/gushi-h.webm?wyvmr" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/gushi-h.jpg" title="大瘟疫中的奇异故事（视频）　　　" alt="大瘟疫中的奇异故事（视频）　　　"></a>
-<a href="https://gitlab.com/Doloresank/vdguanguimin/raw/master/public/guanguimin.webm?sssnt" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guanguimin.jpg" title="短视频：歌唱家关贵敏的人生奇迹　" alt="短视频：歌唱家关贵敏的人生奇迹　"></a><br>
-<a href="https://gitlab.com/Donaldhk8/vdChenDong-1080/raw/master/public/ChenDong-1080.webm?vxppg" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/ChenDong-1080.jpg" title="好莱坞大奖获得者的音乐之路　　　" alt="好莱坞大奖获得者的音乐之路　　　"></a>
-<a href="https://gitlab.com/Dongyril/vdhuangxiaomin-tuidang/raw/master/public/huangxiaomin-tuidang.webm?ktaek" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/huangxiaomin-tuidang.jpg" title="前奥运名将黄晓敏的＂退党声明＂　" alt="前奥运名将黄晓敏的＂退党声明＂　"></a>
-<a href="https://gitlab.com/Donnamw2/vdboshisheng/raw/master/public/boshisheng.webm?ltgye" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/boshisheng.jpg" title="短视频：美国博士生廖佩茹的新生　" alt="短视频：美国博士生廖佩茹的新生　"></a><br>
-<a href="https://gitlab.com/Donnegfa/vdshiren/raw/master/public/shiren.webm?ewcey" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shiren.jpg" title="短视频：台湾诗人生命中最幸福的事" alt="短视频：台湾诗人生命中最幸福的事"></a>
-<a href="https://gitlab.com/Donnetta2rs/vdxsgs/raw/master/public/xsgs.webm?fewdc" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/xsgs.jpg" title="短视频：３０万美金归还韩国失主　" alt="短视频：３０万美金归还韩国失主　"></a>
-<a href="https://gitlab.com/Donniedbq/vdyanjiusheng-360p/raw/master/public/yanjiusheng-360p.webm?ukgot" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/yanjiusheng-360p.jpg" title="＂倒数第一＂的学生考上了研究生　" alt="＂倒数第一＂的学生考上了研究生　"></a><br>
-<a href="https://gitlab.com/Donniegme/vdfsu-mFG8/raw/master/public/fsu-mFG8.webm?xmere" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/fsu-mFG8.jpg" title="短视频：她在回光返照时得救　　　" alt="短视频：她在回光返照时得救　　　"></a>
-<a href="https://gitlab.com/Donnyyjr6/vdguangming/raw/master/public/guangming.webm?mebqc" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guangming.jpg" title="短视频：抑郁和不孕的她迎来了光明" alt="短视频：抑郁和不孕的她迎来了光明"></a>
-<a href="https://gitlab.com/Dontea7aj/vdshaonian/raw/master/public/shaonian.webm?bdpdm" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shaonian.jpg" title="短视频：绝处逢生的癌症少年　　　" alt="短视频：绝处逢生的癌症少年　　　"></a><br>
+<a href="https://gitlab.com/Dillonghk/vdpzNgjXjVPm/raw/master/public/pzNgjXjVPm.mp4?lilvi" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/pzNgjXjVPm.jpg" title="疫情险　顺天保命有真言　　　　　" alt="疫情险　顺天保命有真言　　　　　"></a>
+<a href="https://gitlab.com/Dillonmkc/vdgushi-h/raw/master/public/gushi-h.mp4?xifop" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/gushi-h.jpg" title="大瘟疫中的奇异故事（视频）　　　" alt="大瘟疫中的奇异故事（视频）　　　"></a>
+<a href="https://gitlab.com/Doloresank/vdguanguimin/raw/master/public/guanguimin.mp4?neemg" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guanguimin.jpg" title="短视频：歌唱家关贵敏的人生奇迹　" alt="短视频：歌唱家关贵敏的人生奇迹　"></a><br>
+<a href="https://gitlab.com/Donaldhk8/vdChenDong-1080/raw/master/public/ChenDong-1080.mp4?yahvb" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/ChenDong-1080.jpg" title="好莱坞大奖获得者的音乐之路　　　" alt="好莱坞大奖获得者的音乐之路　　　"></a>
+<a href="https://gitlab.com/Dongyril/vdhuangxiaomin-tuidang/raw/master/public/huangxiaomin-tuidang.mp4?wtimr" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/huangxiaomin-tuidang.jpg" title="前奥运名将黄晓敏的＂退党声明＂　" alt="前奥运名将黄晓敏的＂退党声明＂　"></a>
+<a href="https://gitlab.com/Donnamw2/vdboshisheng/raw/master/public/boshisheng.mp4?dvwll" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/boshisheng.jpg" title="短视频：美国博士生廖佩茹的新生　" alt="短视频：美国博士生廖佩茹的新生　"></a><br>
+<a href="https://gitlab.com/Donnegfa/vdshiren/raw/master/public/shiren.mp4?dkgdk" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shiren.jpg" title="短视频：台湾诗人生命中最幸福的事" alt="短视频：台湾诗人生命中最幸福的事"></a>
+<a href="https://gitlab.com/Donnetta2rs/vdxsgs/raw/master/public/xsgs.mp4?wuxmu" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/xsgs.jpg" title="短视频：３０万美金归还韩国失主　" alt="短视频：３０万美金归还韩国失主　"></a>
+<a href="https://gitlab.com/Donniedbq/vdyanjiusheng-360p/raw/master/public/yanjiusheng-360p.mp4?yfhsf" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/yanjiusheng-360p.jpg" title="＂倒数第一＂的学生考上了研究生　" alt="＂倒数第一＂的学生考上了研究生　"></a><br>
+<a href="https://gitlab.com/Donniegme/vdfsu-mFG8/raw/master/public/fsu-mFG8.mp4?bpqjz" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/fsu-mFG8.jpg" title="短视频：她在回光返照时得救　　　" alt="短视频：她在回光返照时得救　　　"></a>
+<a href="https://gitlab.com/Donnyyjr6/vdguangming/raw/master/public/guangming.mp4?dhcjw" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/guangming.jpg" title="短视频：抑郁和不孕的她迎来了光明" alt="短视频：抑郁和不孕的她迎来了光明"></a>
+<a href="https://gitlab.com/Dontea7aj/vdshaonian/raw/master/public/shaonian.mp4?ciprr" target="_blank"><img width="195" height="132" src="https://raw.githubusercontent.com/19920513/vd/master/t/210b/shaonian.jpg" title="短视频：绝处逢生的癌症少年　　　" alt="短视频：绝处逢生的癌症少年　　　"></a><br>
 
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br>
@@ -469,12 +469,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/19920513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/19920513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/19920513/www/blob/master/README.md?u#1<br>
-<br><img align="middle" src="https://raw.githubusercontent.com/19920513/www/master/t/fg200.gif?q" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=235x235&choe=UTF-8&chld=M|2&chl=https://tinyurl.com/hhhht" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?p%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/19920513/www/blob/master/README.md?k#1<br>
+<br><img align="middle" src="https://raw.githubusercontent.com/19920513/www/master/t/fg200.gif?i" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=235x235&choe=UTF-8&chld=M|2&chl=https://tinyurl.com/jjqjj" title="分享本平台"></img>&nbsp;&#160;<img align="middle" src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/19920513/www/blob/master/README.md?v%231" title="分享本平台"></img>
 <br>
-<a href="https://tinyurl.com/jjqjj">tinyurl.com/jjqjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/b5555">tinyurl.com/b5555</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jnnnn">tinyurl.com/jnnnn</a>
+<a href="https://tinyurl.com/hhhhp">tinyurl.com/hhhhp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/hhyhh">tinyurl.com/hhyhh</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tinyurl.com/jjejj">tinyurl.com/jjejj</a>
 <br>
 <br>
-<h3><a href="https://19920513.github.io/vd/qr/qr2/#https://github.com/19920513/www/blob/master/README.md?g#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tui590285/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fa%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fe%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
+<h3><a href="https://19920513.github.io/vd/qr/qr2/#https://github.com/19920513/www/blob/master/README.md?q#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/19920513/www/blob/master/README.md%3Fm%231%22%2C%22https://github.com/19920513/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fe%231%22%2C%22https://github.com/tui590285/www/blob/master/README.md%3Fo%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://19920513.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a>
 </div>
